@@ -26,7 +26,7 @@ Here are some ideas to get you started:
 
 ### Social
 
-- 👻 : [103style.top](103style.top)
+- 👻 : [103style.top](http://103style.top)
 
 ----
 
