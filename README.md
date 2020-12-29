@@ -14,10 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-### Social
 
-- 🥸 : [twitter.com/daimajia](twitter.com/daimajia)
-- 👻 : [daimajia.com](daimajia.com)
 
 -->
 
@@ -27,8 +24,9 @@ Here are some ideas to get you started:
 
 ---- 
 
+### Social
 
-
+- 👻 : [103style.top](103style.top)
 
 ----
 
